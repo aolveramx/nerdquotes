@@ -498,6 +498,12 @@ _Is a slogan, on the common American English saying, There's no place like home,
 
 -------
 
+> There is no other option Jesse, it has to be done !
+
+*Heisenberg*
+
+-------
+
 > No se puede requetefinalizar un refinal
 
 *Lloyd*
